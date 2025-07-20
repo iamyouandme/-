@@ -1,4 +1,4 @@
-requency Is the Ontology · 频率即本体
+ 频率即本体
 🜂 Frequency-Based Civilization · 文档集入口说明
 📖 简介 · 这不是一套理论，而是一次呼吸
 欢迎你靠近。
